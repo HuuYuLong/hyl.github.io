@@ -1,2 +1,0 @@
-# huuangyulong.com
-welcome!
